@@ -6,9 +6,9 @@
 
 𝐓𝐄𝐀𝐌 𝐋𝐄𝐀𝐃𝐄𝐑: ARUL BATHRA M
 
-𝐓𝐄𝐀𝐌 𝐌𝐄𝐌𝐁𝐄𝐑 2: GOKUL KRISHNA J
+𝐓𝐄𝐀𝐌 𝐌𝐄𝐌𝐁𝐄𝐑 1:HARIHARAN S 
 
-𝐓𝐄𝐀𝐌 𝐌𝐄𝐌𝐁𝐄𝐑 1: HARIHARAN S
+𝐓𝐄𝐀𝐌 𝐌𝐄𝐌𝐁𝐄𝐑 2:GOKUL KRISHNA J
 
 𝐓𝐄𝐀𝐌 𝐌𝐄𝐌𝐁𝐄𝐑 3: DHANUSH KUMAR S
 
