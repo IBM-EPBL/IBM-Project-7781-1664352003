@@ -12,4 +12,4 @@
 
 𝐓𝐄𝐀𝐌 𝐌𝐄𝐌𝐁𝐄𝐑 3: DHANUSH KUMAR S
 
-𝐓𝐄𝐀𝐌 𝐌𝐄𝐌𝐁𝐄𝐑 5: GURU SANKAR B
+𝐓𝐄𝐀𝐌 𝐌𝐄𝐌𝐁𝐄𝐑 4: GURU SANKAR B
